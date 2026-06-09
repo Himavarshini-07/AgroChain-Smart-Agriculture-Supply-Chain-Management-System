@@ -6,3 +6,4 @@
 ![image alt](https://github.com/Himavarshini-07/AgroChain-Smart-Agriculture-Supply-Chain-Management-System/blob/main/co3%202.jpg?raw=true)
 ![image alt](https://github.com/Himavarshini-07/AgroChain-Smart-Agriculture-Supply-Chain-Management-System/blob/main/CO4%20%20Screenshot%202026-06-09%20090452.png?raw=true)
 ![image alt](https://github.com/Himavarshini-07/AgroChain-Smart-Agriculture-Supply-Chain-Management-System/blob/main/CO5%20Screenshot%202026-06-09%20091838.png?raw=true)
+![image alt](https://github.com/Himavarshini-07/AgroChain-Smart-Agriculture-Supply-Chain-Management-System/blob/main/CO6%20Screenshot%202026-06-09%20092942.png?raw=true)
